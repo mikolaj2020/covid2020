@@ -10,14 +10,14 @@ naruszył kompromis aborcyjny i ludzie wyszli na ulice.
 
 Co zapamiętamy z tego po latach?
 
-Postanowiliśmy zebrać publicznego materiał źródłowy - nagrań dyspozytorni
-karetek w Warszawie, ludzi którzy są na froncie i codziennie chcą walczyć o
+Postanowiliśmy zebrać publiczny materiał źródłowy - nagrania dyspozytorni
+karetek w Warszawie. Ludzi którzy są na froncie i codziennie chcą walczyć o
 życie ludzi, a muszą walczyć z organizacyjnym chaosem i brakami miejsc w
 szpitalach. Druga część tej historii rozegrała się na pewno w szpitalach.
 
 Materiał nie jest pocięty, nie wybieraliśmy rozmów. Usunęliśmy tylko ciszę
 radiową pomiędzy rozmowami, by całość dało się racjonalnie przesłuchać. To jest
-radio i nie wszystko mogło dolecieć.
+radio i nie wszystko mogło dolecieć i trochę szumi.
 
 Contributing
 ------------
